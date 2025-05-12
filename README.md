@@ -6,5 +6,4 @@ Fun facts about me:
 - used to working independently
 - enjoy working in groups
   Linkedin: www.linkedin.com/in/cristoval-avila
-  E-mail: aot40ca@gmail.com
-  Github: 
+  E-mail: aot40ca@gmail.com 
