@@ -5,5 +5,6 @@ Fun facts about me:
 - always eagered to learn new skills/ sharpen my skills
 - used to working independently
 - enjoy working in groups
+
   Linkedin: www.linkedin.com/in/cristoval-avila
   E-mail: aot40ca@gmail.com 
